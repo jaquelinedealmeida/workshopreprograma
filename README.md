@@ -23,7 +23,7 @@ Agrega diversos conhecimentos e reinventa a si mesma.
 
 >**Encantada com o mundo da programação** :computer: 
 
->>>>>>>>>>>>>>>**Instagram**: <instagram.com/mahuwacomunicacaoecuidado/>
+>>>**Conheça Mais**: (https://instagram.com/mahuwacomunicacaoecuidado)
 
 
 
